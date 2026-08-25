@@ -48,6 +48,7 @@ The ultimate gathering of gaming icons in one legendary fighting arena.
 
 
 </div>
+
 ## Quick Game Snapshot
 
 
